@@ -1,4 +1,4 @@
-# Hi there 👋
+# Richy Gomez👋
 
-💻Ik ben Richy Gomez, een student met een passie voor programmeren.✨ 
+aan het typen....
 
